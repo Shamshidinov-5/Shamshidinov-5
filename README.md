@@ -23,7 +23,7 @@ I am Muhammad Shamshidinov, an experienced Full-Stack developer for small and me
 If you have any cooperation or questions, you can contact us at the following addresses:
 
 - **Email:** [shamshidinov571@gmail.com](mailto:shamshidinov571@gmail.com)
-- **Telegram:** @Shamshidinov28
+- **Telegram:** @Shamshidinov01
 
 Let's work together and achieve new achievements! 🚀
 
